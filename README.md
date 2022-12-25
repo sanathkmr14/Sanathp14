@@ -6,5 +6,5 @@ Hi there 👋, This is Sanath Kumar
 
 • 😊 Pronouns: He/Him
 
-• 📫 YOU can reach me :
+• 📫 You can reach me :
         Sanath.314@gmail.com
