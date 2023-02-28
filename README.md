@@ -1,6 +1,6 @@
 Hi there 👋, This is Sanath Kumar 
 
-• 👀 I’m interested in nowing new Things.
+• 👨 Curious to learn new things. 
 
 • 🌱 I’m currently learning python.
 
